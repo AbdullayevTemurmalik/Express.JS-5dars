@@ -1,1 +1,1 @@
-File Serverni kodlarini korinshingiz va ishlatishingiz mumkun !!
+File Serverni kodlarini korinshingiz ishlatishingiz va organishingiz mumkun !!
